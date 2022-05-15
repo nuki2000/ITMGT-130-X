@@ -1,2 +1,0 @@
-# ITMGT-130-X
-ITMGT 130-X
